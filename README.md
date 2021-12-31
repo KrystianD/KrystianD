@@ -12,7 +12,7 @@ On my daily basis, I use Linux with Arch Linux and OpenBox on it, optimized and 
 
 ### :briefcase: Work
 
-I am a freelancer as well, who is always looking for great opportunities, especially long-term relationships. So if you have anything in mind, feel free to contact me!
+I am a freelancer, who is always looking for great opportunities, especially long-term relationships. So if you have anything in mind, feel free to contact me!
 
 * [Clutch reviews](https://clutch.co/profile/kdsolutions#reviews)
 * [Upwork reviews](https://www.upwork.com/fl/krystianduzynski)
