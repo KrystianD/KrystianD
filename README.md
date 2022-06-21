@@ -23,6 +23,7 @@ I am a freelancer, who is always looking for great opportunities, especially lon
 Feel free to write an email or drop me a line on Discord:
 
 - Email: krystian.duzynski@gmail.com
+- Skype: krystian.duzynski
 - Discord - DM: `krystiand#1321`, server: https://discord.gg/TBXQZwguDk
 
 ### :mailbox: Me on the internet
