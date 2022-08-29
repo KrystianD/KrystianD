@@ -20,7 +20,7 @@ I am a freelancer, who is always looking for great opportunities, especially lon
 
 ### :speech_balloon: Want to talk about my projects? You have something to be done?
 
-Feel free to write an email or drop me a line on Discord:
+Feel free to write an email or drop me a line:
 
 - Email: krystian.duzynski@gmail.com
 - Skype: krystian.duzynski
